@@ -1,2 +1,2 @@
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Hello,+mon+cheri+/+ma+cherie.+<3;Welcome+to+my+page!!+^^)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=HEYAAA+>'<+<3;Welcome+to+my+page!!+^^)](https://git.io/typing-svg)
